@@ -1,1 +1,0 @@
-# yoonsikk.github.io
